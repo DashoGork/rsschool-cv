@@ -1,4 +1,4 @@
-# Cv for first stage
+# Cv for the first stage
 
 ## Name: Darya Okrut
 
